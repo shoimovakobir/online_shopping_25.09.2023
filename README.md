@@ -1,0 +1,1 @@
+# online_shopping_25.09.2023
